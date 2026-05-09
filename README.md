@@ -68,4 +68,4 @@ We may update this policy from time to time. Any changes will be reflected by up
 
 If you have any questions about this privacy policy, please contact us at:
 
-**andresfelipelozano03@gmail.com**
+**@felilo**
